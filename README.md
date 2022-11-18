@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Kansai700, the alt account for @XavierPlayz700 because I changed my email lol.
-- 👀 I’m interested in nothing
+- 👀 I’m interested in wine ehe
 - 🌱 I’m currently learning Java
 - 💞️ I’m looking to collaborate on something I forgot
 - 📫 How to reach me : xavierxerneas700@gmail.com
