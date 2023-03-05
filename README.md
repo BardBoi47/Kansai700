@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Kansai, the alt account for Xavier because I changed my email lol. (Ugh this GitHub always doing 2FA and I deleted my gmail acc)
+- 👋 Hi, I’m Venti, the alt account for Xavier because I changed my email lol. (Ugh this GitHub always doing 2FA and I deleted my gmail acc)
 - 👀 I’m interested in wine ehe
 - 🌱 I’m currently learning Java
 - 💞️ I’m looking to collaborate on something I forgot
